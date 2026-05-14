@@ -1,6 +1,17 @@
 # PAID-EMU-CRACKED-
 ADYO EMU AND ERNS OPT CRACKED USE AT YOUR OWN RISK
 
+EXM 
+https://www.mediafire.com/file/gcljxt561ip03q6/EXMPremiumTweaker.bat/file
+
+https://www.mediafire.com/file/v6le33yb308zdtz/ERNS+X+LITE+OPTIMIZE.exe/file
+LITEX WINDWO OPT
+EVGA CORE UP 
+https://www.mediafire.com/file/mun8exp0f13as00/EVGA+CoreUP.exe/file
+
+https://www.mediafire.com/file/zlxm6e9bbj97rvf/ERNS+ALLROUNDER+SETUP@Romulus_FF.exe/file
+ALL ROUNDER
+
 https://drive.google.com/file/d/1Exl7XBDfXMUyEFD3o7jEAw9OOh86EYLG/view?usp=sharing
 
 
