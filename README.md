@@ -1,2 +1,4 @@
 # PAID-EMU-CRACKED-
 ADYO EMU AND ERNS OPT CRACKED USE AT YOUR OWN RISK
+
+https://drive.google.com/file/d/1Exl7XBDfXMUyEFD3o7jEAw9OOh86EYLG/view?usp=sharing
